@@ -8,12 +8,12 @@
 <b> Vaapas Aaja Lavde Anku ko ban kar diya </b>
 [![Github Overview](https://github-readme-stats.vercel.app/api?username=0x0is1&bg_color=30,e96443,904e95&title_color=fff&text_color=fff)](https://github.com/0x0is1) <br>
 >>>"cum back pissfully or consequences"
-Skye
->>>Mat aaiyo lode, maa chod dunga warna
-Vaccine
+-Skye
+>>> Mat aaiyo lode, maa chod dunga warna
+-Vaccine
  
 >>>fren plzz cum on time
-Roni
+-Roni
 
 ## Visitors Count
 ![Count](https://profile-counter.glitch.me/0x0is1/count.svg)
